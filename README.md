@@ -1,2 +1,2 @@
 who up playing with they worm
-![spongebob vehicular manslaughter]([https://tenor.com/view/fairysoobs-spongebob-spongebob-meme-spongebob-driving-gif-25570955](https://cdn.discordapp.com/attachments/879114808396505129/1117257623557910640/spunge.gif))
+![spongebob vehicular manslaughter](![image](https://github.com/lockerhead/lockerhead/assets/136206551/c01168bf-2854-4db5-af1b-23c83b654856)
