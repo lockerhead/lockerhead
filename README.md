@@ -1,6 +1,6 @@
 ### who up playing with they worm <br>
 skull he/meow . im usually afk but ur free to talk to me though i probably wont respond bc im deathly terrified of talking to ppl on here<br>
-<a href="https://github.com/lockerhead/lockerhead/blob/main/README.md#stamps">stamps</a> <a href="https://github.com/lockerhead/lockerhead/blob/main/README.md#blinkies">blinkies</a> <a href="https://github.com/lockerhead/lockerhead/blob/main/README.md#buttons">buttons</a>
+<a href="https://github.com/lockerhead#stamps">stamps</a> <a href="https://github.com/lockerhead#blinkies">blinkies</a> <a href="https://github.com/lockerhead#buttons">buttons</a>
 
 ### stamps
 <img width="148px" height="84px" src="https://cdn.discordapp.com/attachments/979907507298398248/1117539171213521007/jesussaysnotohomestuck.png"> <img width="148px" height="84px" src="https://cdn.discordapp.com/attachments/979907507298398248/1117538096527982733/kaworugrill.png"> <img width="148px" height="84px" src="https://cdn.discordapp.com/attachments/979907507298398248/1117539543705460866/isupportyaoi.png"> <img width="148px" height="84px" src="https://cdn.discordapp.com/attachments/979907507298398248/1117539171591016558/jon.gif"> <img width="148px" height="84px" src="https://cdn.discordapp.com/attachments/979907507298398248/1117266294148976730/eddashdastamp.png"><br>
