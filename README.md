@@ -17,6 +17,8 @@ skull he/meow . im usually afk but ur free to talk to me though i probably wont 
 
 <img src="https://blinkiecollecti0n.neocities.org/images/imbored.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/boofuckinghoo.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/airguitarblinky.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/oldskoolblinky.gif"> <img src="https://cdn.discordapp.com/attachments/879114808396505129/1121474518716776539/legendofthepenis.gif">
 
+<img src="https://blinkiecollecti0n.neocities.org/images/sleepytime.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/what.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/haveaday.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/clickthemonkey.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/evangelion.gif">
+
 ### buttons
 <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600181697491004/SKELETON.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600213729386596/yumenikki5.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600182158860478/sylveon.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600213351891046/winxp.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600146394021938/nftbutton.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118601122224021544/17776.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600181148045414/PISS.gif">
 
