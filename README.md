@@ -19,6 +19,12 @@ skull he/meow . im usually offtab but im open to talking to ppl w mutual interes
 
 <img src="https://blinkiecollecti0n.neocities.org/images/sleepytime.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/what.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/haveaday.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/clickthemonkey.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/evangelion.gif">
 
+<img src="https://blinkiecollecti0n.neocities.org/images/awshit.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/miraclemusical.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/splatoon2.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/neveroddoreven.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/ismilecuzidk.gif">
+
+<img src="https://blinkiecollecti0n.neocities.org/images/conservewater.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/kill.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/bubblewrap.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/jumpscare.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/smokingsucks.gif">
+
+<img src="https://blinkiecollecti0n.neocities.org/images/dishwashersafe.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/soad2.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/clownswilleatme.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/skeleton.gif"> <img src="https://blinkiecollecti0n.neocities.org/images/lovemyputer.gif">
+
 ### buttons
 <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600181697491004/SKELETON.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600213729386596/yumenikki5.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600182158860478/sylveon.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600213351891046/winxp.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600146394021938/nftbutton.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118601122224021544/17776.gif"> <img src="https://cdn.discordapp.com/attachments/1118589079286730882/1118600181148045414/PISS.gif">
 
