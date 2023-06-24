@@ -1,4 +1,4 @@
-skull he/meow . im usually afk but ur free to talk to me though i probably wont respond bc im deathly terrified of talking to ppl on here . if i do respond i'll probably come off as a little dry nd i apologize in advance for my bootyfart social skills<br>
+skull he/meow . im usually offtab but im open to talking to ppl w mutual interests but i might be a bit dry at first im trying my best i swear . if im not in the mood to talk i'll probably just ignore u please dont take it personally<br>
 <a href="https://github.com/lockerhead#stamps">stamps</a> <a href="https://github.com/lockerhead#blinkies">blinkies</a> <a href="https://github.com/lockerhead#buttons">buttons</a>
 
 ### stamps
