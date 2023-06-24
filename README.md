@@ -1,4 +1,4 @@
-skull he/meow . im usually offtab but im open to talking to ppl w mutual interests but i might be a bit dry at first im trying my best i swear . if im not in the mood to talk i'll probably just ignore u please dont take it personally<br>
+skull he/meow . im usually offtab but im open to talking to ppl w mutual interests but i might be a bit dry at first im trying my best i swear . if im not in the mood to talk i'll probably just ignore u please dont take it personally Also do Not try to roleplay with me i will hit you with a large stick<br>
 <a href="https://github.com/lockerhead#stamps">stamps</a> <a href="https://github.com/lockerhead#blinkies">blinkies</a> <a href="https://github.com/lockerhead#buttons">buttons</a>
 
 ### stamps
